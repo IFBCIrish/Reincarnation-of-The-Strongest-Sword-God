@@ -1,0 +1,2 @@
+# Reincarnation-of-The-Strongest-Sword-God
+Starting over once more, he has entered this “living game” again in order to control his own fate.  This time, he will not be controlled by others.  Previously the Level 200 Sword King, he will rise to a higher peak in this life.  Methods to earn money! Dungeon conquering strategies! Legendary Quests! Equipment drop locations! Undiscovered battle techniques!
